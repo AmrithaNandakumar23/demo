@@ -18,3 +18,7 @@ My inspiration is my future self who can drive well to any shop and purchase wit
 A person who helps the needy and builds a trustee for all the living beings.
 Or a person who has improved and learned how to self love more everyday.
 Everyday my  past self becomes my target who needs to work a step ahead today.
+#a note for sir
+I apologise on the behalf of my class as we are too hard to be in control.
+Hope you would help us to build a strong foundation in Python lang.
+Felt more comfortable in your classes than the other subjects.
