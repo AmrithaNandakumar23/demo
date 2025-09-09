@@ -12,3 +12,9 @@ My mothers name is Banu Rega. She is a renowed Advocate. Who has been practicing
 I have a sibling named Asvithaa. Whos pursuing her final year in KGiSL institute.
 My native is Hosur,Karanataka.
 I'm a kannadiga and can also be termed as a multilingual.
+#aspiration
+I've always been aspired to become a better self of me.
+My inspiration is my future self who can drive well to any shop and purchase without peeping into the cost.
+A person who helps the needy and builds a trustee for all the living beings.
+Or a person who has improved and learned how to self love more everyday.
+Everyday my  past self becomes my target who needs to work a step ahead today.
