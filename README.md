@@ -22,3 +22,17 @@ Everyday my  past self becomes my target who needs to work a step ahead today.
 I apologise on the behalf of my class as we are too hard to be in control.
 Hope you would help us to build a strong foundation in Python lang.
 Felt more comfortable in your classes than the other subjects.
+
+##########################################################################################################
+
+Amritha,
+
+I am very glad to know about you and I truly admire the way you’ve already carved a creative path for yourself through editing. The fact that you are not only passionate about it but also earning from it at such a young age shows your dedication and smartness. Balancing studies with a side hustle is not easy, and it proves that you have the discipline and determination needed to succeed in life.
+
+It’s completely okay that you are new to Python or C. Everyone starts somewhere, and what truly matters is your willingness to learn and explore. With your enthusiasm and curiosity, I am sure you will master coding step by step. Mistakes will come, but each mistake will be a stepping stone that takes you closer to mastery.
+
+I also appreciate your honesty and the heartfelt note you shared about your class. Why are you apologizing? It’s not that big of a problem. If someone takes too much control at the beginning of the class, many people might not like it — but we can manage it, it’s not a problem. I believe I can definitely give all of you a strong programming foundation. Thank you for saying my class feels very comfortable. I will always try to give that feeling to you and your classmates.
+
+Keep your confidence high, Amritha, and believe in your potential. One day, you will not only become the person you dream of but also inspire many others with your journey.
+
+All the best — I am excited to see your growth in coding and in life.
